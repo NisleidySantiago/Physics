@@ -1,0 +1,5 @@
+![fisica11 006](https://user-images.githubusercontent.com/36342673/128647432-c9190987-9a4a-45b5-9860-571677ea42ff.jpg)
+![fisica11 013](https://user-images.githubusercontent.com/36342673/128647445-350819ae-fa64-40e2-93f9-9c5c50eb2f25.jpg)
+![fisica11 007](https://user-images.githubusercontent.com/36342673/128647451-0631596b-b3ba-4f82-abe3-164572407dc5.jpg)
+![fisica11 012](https://user-images.githubusercontent.com/36342673/128647453-9bc64cae-995c-4592-8cd0-f99731ebed64.jpg)
+![fisica11 004](https://user-images.githubusercontent.com/36342673/128647455-620367c0-e700-46c9-b5f5-9a1aefe3e4af.jpg)
