@@ -1,2 +1,11 @@
+![Fisica 21-Potencial Electrico 001](https://user-images.githubusercontent.com/36342673/130373057-539e1113-e0ba-4137-8de6-3ab33f379e89.jpg)
+![Fisica 21-Potencial Electrico 002](https://user-images.githubusercontent.com/36342673/130373063-11e43061-d0c7-4654-a3ad-4d51f72aae2f.jpg)
+![Fisica 21-Potencial Electrico 003](https://user-images.githubusercontent.com/36342673/130373069-cff157c4-431a-446f-aa0f-8c5614edd959.jpg)
+![Fisica 21-Potencial Electrico 004](https://user-images.githubusercontent.com/36342673/130373072-d37a8094-7742-44fd-a3b5-ccfaa5c6cb7f.jpg)
+![Fisica 21-Potencial Electrico 005](https://user-images.githubusercontent.com/36342673/130373049-77a480d9-a37d-4e8a-a355-8b8f3690960e.jpg)
+![Fisica 21-Potencial Electrico 006](https://user-images.githubusercontent.com/36342673/130373050-8fcbdf7c-72dd-427b-a210-64629752fe91.jpg)
+![Fisica 21-Potencial Electrico 007](https://user-images.githubusercontent.com/36342673/130373052-39813608-c043-4eaf-9890-ad8ed52f96e0.jpg)
+![Fisica 21-Potencial Electrico 008](https://user-images.githubusercontent.com/36342673/130373056-24e57bb0-abaa-48c7-bbea-36be72bf683d.jpg)
 ![Fisica 21-Campos electricos 027](https://user-images.githubusercontent.com/36342673/130337879-6367059a-c835-4e1b-b3d5-bb72681ad696.jpg)
 ![Fisica 21-Campos electricos 028](https://user-images.githubusercontent.com/36342673/130337886-8a713cee-9f56-48c6-96a4-50ebbdb7668e.jpg)
+
